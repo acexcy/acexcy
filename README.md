@@ -8,7 +8,7 @@ Im currently primarily working on rembot for a friend of mine. Its also a fun pr
 
 # i like
 
-stuff
+stuff and games ig
 
 # i dislike
 * most cheeses
